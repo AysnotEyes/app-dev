@@ -3,4 +3,4 @@
 
 ---
 
-###### Starring:Ren Nagase, Natsuki Deguchi, Mayuu Yokota
+###### Starring: Ren Nagase, Natsuki Deguchi, Mayuu Yokota
